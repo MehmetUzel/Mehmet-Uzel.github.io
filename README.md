@@ -1,1 +1,0 @@
-# Mehmet-Uzel.github.io
